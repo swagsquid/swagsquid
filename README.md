@@ -1,6 +1,6 @@
 
 ‎ <p align="center">
-[![Untitled226-20250221174645.png](https://i.postimg.cc/85Zmk23C/Untitled226-20250221174645.png)](https://postimg.cc/62GvYmBs) 
+[![Untitled226-20250221210231.png](https://i.postimg.cc/G3vbtL75/Untitled226-20250221210231.png)](https://postimg.cc/c61p5SNR)
 $${\color{magenta}Ash}$$ -- He / $${\color{magenta}They}$$ / She </br>
 𓎟𓎟𓎟 </br>
 $${\color{magenta}American}$$ [![6hmgle-1.gif](https://i.postimg.cc/Gpmmv6tY/6hmgle-1.gif)](https://postimg.cc/K1Cb2qnv) CST [![vy36wz.gif](https://i.postimg.cc/76N9jGDj/vy36wz.gif)](https://postimg.cc/9Rry7fDB)  $${\color{magenta}Married}$$ /P </br>
